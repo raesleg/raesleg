@@ -1,4 +1,7 @@
-![image](https://i.pinimg.com/1200x/d8/2e/ae/d82eaecccde8a9dd6a19ce9c6d93d867.jpg)
+<p align="left">
+  <img src="https://i.pinimg.com/736x/52/a6/6a/52a66a2bd4e94207cbb78f6c6dba6282.jpg" height="230px"/>
+</p>
+
 ## **⏾ rae ( ꩜ ᯅ ꩜;)⁭**
 
 - ✩₊˚.⋆☾⋆⁺₊✧ 21
